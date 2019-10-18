@@ -1,0 +1,2 @@
+# sadsdasdsadsadsadsad
+NİTRO GEN KOMUDU
